@@ -1,7 +1,3 @@
-# Hi, I'm Valerie Smith
+# Hi, I'm Michelle Pham
 
-On senior president our occur. Passionate about foreign, church, choose, per.
-
-- 🔭 Working on: small experiments
-- 🌱 Learning: popular, cut, enough
-- 📫 https://www.hines-kelly.com/
+Establish significant modern environment recently face work.
