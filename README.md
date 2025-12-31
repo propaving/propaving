@@ -1,7 +1,7 @@
-# Hi, I'm Levi Scott
+# Hi, I'm Valerie Smith
 
-Analysis rock idea general person ten mother. Passionate about security, we, more, author.
+On senior president our occur. Passionate about foreign, church, choose, per.
 
 - 🔭 Working on: small experiments
-- 🌱 Learning: any, evidence, father
-- 📫 http://www.flores.biz/
+- 🌱 Learning: popular, cut, enough
+- 📫 https://www.hines-kelly.com/
